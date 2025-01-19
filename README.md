@@ -1,0 +1,5 @@
+![l1](https://github.com/user-attachments/assets/f1d8033b-46b0-49ed-9b41-d824d8525124)
+![l2](https://github.com/user-attachments/assets/6f9c9bc0-b29c-4da1-8121-253ba4fcc610)
+![l3](https://github.com/user-attachments/assets/3380eead-fb3e-4ebc-9134-f350ba628eaf)
+![l5](https://github.com/user-attachments/assets/17b39f4b-b325-4abb-91fb-71723ede7814)
+![Screenshot 2025-01-19 190642](https://github.com/user-attachments/assets/3bf3c28c-9e98-4e40-9df2-1d8a22e28c04)
